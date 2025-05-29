@@ -7,13 +7,14 @@ Celebrating Mark Rausher's retirement from teaching!
 
 **Schedule at a glance**:
 
-Morning: Dedication of memorial to Dr. Shu-mei Chang ([The State Botanical Garden of Georgia](https://botgarden.uga.edu/))
+Morning: Dedication of memorial to Dr. Shu-mei Chang @ [The State Botanical Garden of Georgia](https://botgarden.uga.edu/) (details to come)
 
 Lunch (12-1): Catered by [Mama's Boy](https://www.mamasboyathens.com/) (Davison Life Science Bldg)
+
+Talks (1-5): See the current schedule of 5-minute and 15-minute talks [here](https://docs.google.com/document/d/1ns1FphggLR8k4Z2l7IHPhRqHyKUL5EA-D-9aJFfZzh4/edit?tab=t.0)
 
 
 There is a great line-up of talks planned. Please see [here](https://docs.google.com/document/d/1spLdFTdgq48Zm6xpuhjHO0J6CTotknghVwTgCdLhoLc/edit) for the current schedule.
 
-Since the talks begin at 12:20, please hang your posters before then. The poster boards are 4'x4', so should fit any size poster.
 
 **If you're sick and can't make it, please let us know. No problem at all--we just need to know so we can try to rearrange the schedule.
