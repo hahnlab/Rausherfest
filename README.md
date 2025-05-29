@@ -1,5 +1,5 @@
 # Rausher-fest 2025
-Celebrating Mark Rausher's retirement from teaching!
+Celebrating Mark Rausher's career of training and mentorship!
   <br><br/>
 **Date**: Friday, June 20, 2025
 
