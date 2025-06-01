@@ -15,4 +15,5 @@ Talks (1-5): See the current schedule of 5-minute and 15-minute talks [here](htt
   <br></br>
 
 In addition, there will be an informal gathering at [Creature Comforts Brewery](https://creaturecomfortsbeer.com/athens/) on the night of Thursday, June 19th. More details to come!
+
 **If you haven't signed up to talk but still would like to, it's no problem at all--just let us know and we'll fit you in!**
