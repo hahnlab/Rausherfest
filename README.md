@@ -12,6 +12,8 @@ Morning: Dedication of memorial to Dr. Shu-mei Chang @ [The State Botanical Gard
 Lunch (12-1): Catered by [Mama's Boy](https://www.mamasboyathens.com/) (Davison Life Science Bldg Room B116)
 <br>
 Talks (1-5): See the current schedule of 5-minute and 15-minute talks [here](https://docs.google.com/document/d/1ns1FphggLR8k4Z2l7IHPhRqHyKUL5EA-D-9aJFfZzh4/edit?tab=t.0)
+
+Registration for Evolution starts ~5:45.
   <br></br>
 
 In addition, there will be an informal gathering at [Creature Comforts Brewery](https://creaturecomfortsbeer.com/athens/) on the night of Thursday, June 19th. More details to come!
