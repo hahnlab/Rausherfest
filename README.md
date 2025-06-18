@@ -16,6 +16,6 @@ Talks (1-5): See the current schedule of 5-minute and 15-minute talks [here](htt
 Registration for Evolution starts ~5:45.
   <br></br>
 
-In addition, there will be an informal gathering at [Creature Comforts Brewery](https://creaturecomfortsbeer.com/athens/) on the night of Thursday, June 19th. More details soon.
+In addition, there will be an informal gathering at [Creature Comforts Brewery](https://creaturecomfortsbeer.com/athens/) on the night of Thursday, June 19th. We'll meet starting from 6 pm--food can be ordered from surrounding restaurants if you don't eat beforehand.
 
 **If you haven't signed up to talk but still would like to, it's no problem at all--just let us know and we'll fit you in!**
