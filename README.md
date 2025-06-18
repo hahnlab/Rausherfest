@@ -9,7 +9,9 @@ You can walk or take a campus shuttle to the building ([map](https://docs.google
   <br><br/>
 **Schedule at a glance**:
 <br>
-10 am: Dedication of memorial to Dr. Shu-mei Chang @ [The State Botanical Garden of Georgia](https://botgarden.uga.edu/). [map](https://www.google.com/url?sa=t&source=web&rct=j&opi=89978449&url=https://botgarden.uga.edu/wp-content/uploads/2023/04/maphandout2024.6.6web.pdf&ved=2ahUKEwj-wOHs4fmNAxXuvokEHUJwERoQFnoECAoQAQ&usg=AOvVaw3D4q7se_LXNzeb9BQzmxDj)
+10 am: Dedication of memorial bench to Dr. Shu-mei Chang @ [The State Botanical Garden of Georgia](https://botgarden.uga.edu/).
+<br>
+The bench will be located on the Dunson Native Flora Garden trail. Once you find the Dunson garden (#17 on this [map](https://www.google.com/url?sa=t&source=web&rct=j&opi=89978449&url=https://botgarden.uga.edu/wp-content/uploads/2023/04/maphandout2024.6.6web.pdf&ved=2ahUKEwj-wOHs4fmNAxXuvokEHUJwERoQFnoECAoQAQ&usg=AOvVaw3D4q7se_LXNzeb9BQzmxDj)), walk up the trail and the bench should be obvious. There will also be students around to provide directions.
 <br><br/>
 Lunch (12-1): Catered by [Mama's Boy](https://www.mamasboyathens.com/) (Davison Life Science Bldg Room B116)
 <br>
